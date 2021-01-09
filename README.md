@@ -1,3 +1,5 @@
 # girlygenius.github.io
 
-Hello from GirlyGenius!
+Hello from your Girly Genius!
+
+Please donate to the Girly Genius Foundation AMPLY :)
